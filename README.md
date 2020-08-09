@@ -1,1 +1,1 @@
-# self-improvement
+## Jadikan ilmu sebagai karakter
